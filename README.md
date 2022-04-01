@@ -1,1 +1,1 @@
-# My new personal portfolio sit
+# My new personal portfolio site
